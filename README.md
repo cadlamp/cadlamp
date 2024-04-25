@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Cadence Lamphiear @cadlamp
+- 👀 I’m interested in anything! I want to learn new topics to help me decide what career I want to pursue.
+- 🌱 I’m currently taking Distributed Systems, Web Programming, and Intro to HCI!
+- 📫 How to reach me: cllamphiear@gmail.com
+- 😄 Pronouns: she/her
